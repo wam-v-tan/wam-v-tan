@@ -1,0 +1,1 @@
+![mascot](mascot_01.jpg)
